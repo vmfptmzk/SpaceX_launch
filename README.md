@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...  groots
 - 🌱 I’m currently learning ... groots
 - 💞️ I’m looking to collaborate with ... groooooooots
-- 📫 How to reach me ... try your luck
+- 📫 How to reach me ... i'm groot~
 
 <!---
 vmfptmzk/vmfptmzk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
