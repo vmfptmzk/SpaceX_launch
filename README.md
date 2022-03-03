@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @vmfptmzk
-- 👀 I’m interested in ... data science
-- 🌱 I’m currently learning ... data science
-- 💞️ I’m looking to collaborate on ... data science
+- 👋 Hi, I’m @groot
+- 👀 I’m interested in ...  groots
+- 🌱 I’m currently learning ... groots
+- 💞️ I’m looking to collaborate with ... groooooooots
 - 📫 How to reach me ... try your luck
 
 <!---
