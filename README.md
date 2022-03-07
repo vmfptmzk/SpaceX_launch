@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @groot
 - 👀 I’m interested in ...  groots
-- 🌱 I’m currently learning ... groots
+- 🌱 I’m currently learning ... grootz
 - 💞️ I’m looking to collaborate with ... groooooooots
 - 📫 How to reach me ... i am groot~
 
